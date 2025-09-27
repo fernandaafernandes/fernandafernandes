@@ -6,6 +6,7 @@
 ❤️ Voluntária na ONG **Casa Amor e Vida**, apoiando projetos sociais  
 ✨ Apaixonada por tecnologia, inovação e impacto social  
 
+
 ---
 
 ## 🛠️ Tecnologias & Ferramentas  
